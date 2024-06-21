@@ -8,3 +8,4 @@ Meu nome é nicole Feliciano
 
   ![](https://media1.tenor.com/m/oLYK581NEuQAAAAd/lemans-spin-lemans-rain.gif)
 
+* Um dia normal em Le Mans
